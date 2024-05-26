@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Floretion-Inquisitor
 - 👀 I’m interested in ... floretions.
 - 🌱 I’m currently learning ... group theory. 
-- 💞️ I’m looking to collaborate on ... floretions.
+- 💞️ I’m looking to collaborate on ... www.floretions.com .
 - 📫 How to reach me ... floretionguru@gmail.com
 
 <!---
